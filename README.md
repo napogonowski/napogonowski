@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **napogonowski@outlook.com**
 
-- 📄 Know about my experiences [I am a recent GA software Engineering Imsersive graduate](I am a recent GA software Engineering Imsersive graduate)
+- 📄 Know about my experiences I am a recent GA software Engineering Imsersive graduate
 
 - ⚡ Fun fact **Venus is the only planet in our solar system that spins clockwise**
 
